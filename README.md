@@ -1,0 +1,4 @@
+# Paradigm
+
+
+the visual paradigm  
